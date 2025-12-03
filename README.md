@@ -1,0 +1,2 @@
+# practice-For-NEET-With-unlimited-MCQs-because-TopAll-has-the-indian-s-largest-MCQ-question-bank-
+Practice Kinetic Theory of Gases with chapter-wise MCQs on gas laws, pressure–volume relations, molecular speed concept, degrees of freedom, and real-life applications (like how tyres heat up or why a perfume spreads fast). practice For NEET With unlimited MCQs, because TopAll has the indian's largest MCQ question bank!
